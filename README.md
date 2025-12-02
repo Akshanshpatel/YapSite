@@ -14,9 +14,9 @@
 
 We’re mostly hanging out on the app — but if you want to reach me directly, just slide into my DMs:
 
-<a href="https://www.instagram.com/__aks_patel/" target="_blank">DM me on Instagram</a>
+✨ [DM me on Insta](https://www.instagram.com/__aks_patel/) ✨
 
-I will provide you a UID and you will begood to go
+I will provide you a UID and you will be good to go
 
 
 ⚡ About the App
