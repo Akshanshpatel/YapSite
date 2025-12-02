@@ -12,3 +12,6 @@ I will provide you a UID and you will be good to go
 Basically WhatsApp but tiny — packed with all the fun stuff:
 📸 Images • 🎥 Videos • 📄 Docs • 🎙️ Voice Notes • 📞 Calls
 Say it, send it, share it — it works!
+
+If you wanna go through the app as a GUEST
+UID-->12345678
